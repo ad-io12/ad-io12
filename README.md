@@ -1,4 +1,9 @@
 <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nxyzrdsbgsajge7q2salopfy24&cover_image=true&theme=natemoo-re&show_offline=true&background_color=530dd3&interchange=true&profanity=false&bar_color=b155e2&bar_color_cover=false">
+  </a>
+</p>
+<p align="center">
  <img src="https://64.media.tumblr.com/a6c228e81c19b8fe3d61e9ede4eda00d/dc0451d221151451-97/s75x75_c1/3da28327bc6f4aa1f95b494a707631b958d0b948.gifv"> <code style="color : pink">Beautiful Wives 😳</code>
 </p>
 <p align="center">
