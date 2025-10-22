@@ -1,5 +1,5 @@
 <p align="center">
-  <code style="color : pink">She/Her/Hers</code> <img src="https://64.media.tumblr.com/5ba11297f8395b5d5e855c44f73453e3/9917119d21f3fc2b-52/s75x75_c1/47f11686820a0aa3a179288fc3cfa0e6e6c6af8b.pnj"> <code style="color : pink">15 Year old Agoraphobic Shut-In </code> <img src="https://64.media.tumblr.com/0a1bc0dfd154562831fd59769539ae3a/c4b164c44b89f619-6b/s75x75_c1/c3f5dcc5ac46fc2a6dd368328b236c518581e3d6.pnj"> <code style="color : pink">P-DID OCD Autism</code>
+  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/5ba11297f8395b5d5e855c44f73453e3/9917119d21f3fc2b-52/s75x75_c1/47f11686820a0aa3a179288fc3cfa0e6e6c6af8b.pnj"> <code style="color : pink">15 Year old Agoraphobic Shut-In </code> <img src="https://64.media.tumblr.com/0a1bc0dfd154562831fd59769539ae3a/c4b164c44b89f619-6b/s75x75_c1/c3f5dcc5ac46fc2a6dd368328b236c518581e3d6.pnj"> <code style="color : pink">P-DID OCD Autism</code>
 </p>
 <p align="center">
 . + * <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> * + . 
