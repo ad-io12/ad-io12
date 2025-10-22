@@ -1,4 +1,7 @@
 <p align="center">
+  <code style="color : pink">I'm figuring TS out</code>
+</p>
+<p align="center">
 <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> 
 </p> 
 <p align="center">
