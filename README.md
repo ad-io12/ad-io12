@@ -28,7 +28,7 @@
 * + . <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> . + *
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink">Sit by me on Pony.Town, add me; and we'll be friends</code> <img src="https://gifs.crd.co/assets/images/gallery22/938cc963.gif?v=d417d32b">
+ <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink">I'm a lesboy but I'm actually a girl.. Nonya business but gah leave me alone bruh!</code> <img src="https://gifs.crd.co/assets/images/gallery22/938cc963.gif?v=d417d32b">
  <p align="center"> 
  <img src="https://media.tenor.com/T7VEOY7Yr2IAAAAi/ingat-saya-punya.gif">
  </p>
