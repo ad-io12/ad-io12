@@ -13,7 +13,7 @@
   <img src="https://64.media.tumblr.com/a2f436051592075134f4a20ffe022da4/cd212e15ecf9dc79-57/s400x600/a94b365a8b559ddcdde9d73c5b081c43fbc9842d.gifv"> 
 </p>
 <p align="center">
-  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/5ba11297f8395b5d5e855c44f73453e3/9917119d21f3fc2b-52/s75x75_c1/47f11686820a0aa3a179288fc3cfa0e6e6c6af8b.pnj"> <code style="color : pink">15 Year old Agoraphobic Shut-In </code> <img src="https://64.media.tumblr.com/0a1bc0dfd154562831fd59769539ae3a/c4b164c44b89f619-6b/s75x75_c1/c3f5dcc5ac46fc2a6dd368328b236c518581e3d6.pnj"> <code style="color : pink">P-DID OCD Autism</code>
+  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/5ba11297f8395b5d5e855c44f73453e3/9917119d21f3fc2b-52/s75x75_c1/47f11686820a0aa3a179288fc3cfa0e6e6c6af8b.pnj"> <code style="color : pink">15 Year old Agoraphobic Shut-In </code> <img src="https://64.media.tumblr.com/0a1bc0dfd154562831fd59769539ae3a/c4b164c44b89f619-6b/s75x75_c1/c3f5dcc5ac46fc2a6dd368328b236c518581e3d6.pnj"> <code style="color : pink">Problematic by Tik-Tok Standards</code>
 </p>
 <p align="center">
 . + * <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> * + . 
@@ -28,7 +28,7 @@
 * + . <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> . + *
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink">I'm a lesboy but I'm actually a girl.. Nonya business but gah leave me alone bruh!</code> <img src="https://gifs.crd.co/assets/images/gallery22/938cc963.gif?v=d417d32b">
+ <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink">Girls</code> <img src="https://gifs.crd.co/assets/images/gallery22/938cc963.gif?v=d417d32b">
  <p align="center"> 
  <img src="https://media.tenor.com/T7VEOY7Yr2IAAAAi/ingat-saya-punya.gif">
  </p>
