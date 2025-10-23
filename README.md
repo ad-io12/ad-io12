@@ -13,7 +13,7 @@
   <img src="https://64.media.tumblr.com/a2f436051592075134f4a20ffe022da4/cd212e15ecf9dc79-57/s400x600/a94b365a8b559ddcdde9d73c5b081c43fbc9842d.gifv"> 
 </p>
 <p align="center">
-  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/5ba11297f8395b5d5e855c44f73453e3/9917119d21f3fc2b-52/s75x75_c1/47f11686820a0aa3a179288fc3cfa0e6e6c6af8b.pnj"> <code style="color : pink"> Radqueer go fuck yourself in the ass </code> <img src="https://64.media.tumblr.com/0a1bc0dfd154562831fd59769539ae3a/c4b164c44b89f619-6b/s75x75_c1/c3f5dcc5ac46fc2a6dd368328b236c518581e3d6.pnj"> <code style="color : pink">Problematic by Tik-Tok Standards</code>
+  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/546a1d36987a688c9b0d2bc9fce427fb/7516a244d8504961-a9/s75x75_c1/5b4d08c03c9335544dbf55116d3be7579a31d45b.gifv"> <code style="color : pink"> Radqueer go fuck yourself in the ass </code> <img src="https://64.media.tumblr.com/5afbee8224f5cac13e38401cdaefcc37/9d630acd94aea2c4-c9/s75x75_c1/431e21fb2ca3e6ccd1485e524ecc04bcda867e58.gifv"> <code style="color : pink">I'm anti-harassment</code>
 </p>
 <p align="center">
 . + * <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> * + . 
