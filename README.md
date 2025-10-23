@@ -13,7 +13,7 @@
   <img src="https://64.media.tumblr.com/a2f436051592075134f4a20ffe022da4/cd212e15ecf9dc79-57/s400x600/a94b365a8b559ddcdde9d73c5b081c43fbc9842d.gifv"> 
 </p>
 <p align="center">
-  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/546a1d36987a688c9b0d2bc9fce427fb/7516a244d8504961-a9/s75x75_c1/5b4d08c03c9335544dbf55116d3be7579a31d45b.gifv"> <code style="color : pink">Radqueers GO AWAY!!</code> <img src="https://64.media.tumblr.com/5afbee8224f5cac13e38401cdaefcc37/9d630acd94aea2c4-c9/s75x75_c1/431e21fb2ca3e6ccd1485e524ecc04bcda867e58.gifv"> <code style="color : pink">I'm anti-harassment</code>
+  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/546a1d36987a688c9b0d2bc9fce427fb/7516a244d8504961-a9/s75x75_c1/5b4d08c03c9335544dbf55116d3be7579a31d45b.gifv"> <code style="color : pink">Radqueers are filth</code> <img src="[https://64.media.tumblr.com/5afbee8224f5cac13e38401cdaefcc37/9d630acd94aea2c4-c9/s75x75_c1/431e21fb2ca3e6ccd1485e524ecc04bcda867e58.gifv](https://gifs.crd.co/assets/images/gallery22/99c69f62.png?v=ef433a6f)"> <code style="color : pink">I'm anti-harassment</code>
 </p>
 <p align="center">
 . + * <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> * + . 
