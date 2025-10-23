@@ -4,7 +4,10 @@
   </a>
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/a6c228e81c19b8fe3d61e9ede4eda00d/dc0451d221151451-97/s75x75_c1/3da28327bc6f4aa1f95b494a707631b958d0b948.gifv"> <code style="color : pink">Beautiful Ladies 😳</code>
+ <img src="https://64.media.tumblr.com/a6c228e81c19b8fe3d61e9ede4eda00d/dc0451d221151451-97/s75x75_c1/3da28327bc6f4aa1f95b494a707631b958d0b948.gifv"> 
+</p>
+<p align="center"> 
+  Characters I love
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/133ef038215373f1729ddde3513e16be/9e070aec302acff9-49/s75x75_c1/22ddec4098e50e9e14825bbf29ae1525b8f974b9.gifv"> <img src="https://magma.com/shared/YGj4XCgbYAeIZdjoMiVKUj"> <img src="https://magma.com/shared/S4oZuGj4XAoAV12d3l0d9z"> <img src="https://magma.com/shared/14tq62wuKg1o-FwWMK8Vxj"> <img src="https://64.media.tumblr.com/133ef038215373f1729ddde3513e16be/9e070aec302acff9-49/s75x75_c1/22ddec4098e50e9e14825bbf29ae1525b8f974b9.gifv"> 
@@ -13,7 +16,7 @@
   <img src="https://64.media.tumblr.com/a2f436051592075134f4a20ffe022da4/cd212e15ecf9dc79-57/s400x600/a94b365a8b559ddcdde9d73c5b081c43fbc9842d.gifv"> 
 </p>
 <p align="center">
-  <code style="color : pink">His/He/Him</code> <img src="https://64.media.tumblr.com/546a1d36987a688c9b0d2bc9fce427fb/7516a244d8504961-a9/s75x75_c1/5b4d08c03c9335544dbf55116d3be7579a31d45b.gifv"> <code style="color : pink">Radqueers are filth</code> <img src="[https://64.media.tumblr.com/5afbee8224f5cac13e38401cdaefcc37/9d630acd94aea2c4-c9/s75x75_c1/431e21fb2ca3e6ccd1485e524ecc04bcda867e58.gifv](https://gifs.crd.co/assets/images/gallery22/99c69f62.png?v=ef433a6f)"> <code style="color : pink">I'm anti-harassment</code>
+Anti-Harassment, Radqueers are filth to the Earth, I'm fifteen 
 </p>
 <p align="center">
 . + * <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> * + . 
@@ -28,7 +31,7 @@
 * + . <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> . + *
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink"> What to put here? </code>
+ <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  
  <p align="center"> 
  <img src="https://64.media.tumblr.com/d433e5f48bde3cc4a5589a33ba576aaa/183a996603677045-bf/s250x400/5923b39f3930d34786ce5a3db784935d2dfb421a.jpg">
  </p>
