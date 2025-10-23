@@ -28,7 +28,7 @@
 * + . <img src="https://adriansblinkiecollection.neocities.org/dividers/rainbowscrolldivider.gif"> . + *
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink">Shut in loser</code> <img src="https://gifs.crd.co/assets/images/gallery22/938cc963.gif?v=d417d32b">
+ <img src="https://64.media.tumblr.com/cbc19f357601d4de09f33eedb8da557f/5aa47c7f6725f324-af/s75x75_c1/8b5531d93c9a4b78b3e63f90c082bb7766d50fbe.gifv">  <code style="color : pink"> What to put here? </code>
  <p align="center"> 
  <img src="https://64.media.tumblr.com/d433e5f48bde3cc4a5589a33ba576aaa/183a996603677045-bf/s250x400/5923b39f3930d34786ce5a3db784935d2dfb421a.jpg">
  </p>
