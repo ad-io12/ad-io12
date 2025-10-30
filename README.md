@@ -1,12 +1,12 @@
 
 <p align="center">
-🂱 <img src="https://64.media.tumblr.com/6ebe287b7d82f5f558fc8906988b7f41/cfd3dacfea85f312-2a/s400x600/a85bd284a697aa4a2873beca796a73a718ec3c6a.pnj"> 🂱
+🂱 <img src="https://64.media.tumblr.com/9238b3f8b978bac5fc16429235c49af0/b18aff3ce9323114-6a/s400x600/f7f7ba3ce1b11d747b6798a771afcd920565412b.gifv"> 🂱
 </p>
 <p align="center">
-<img src="https://magma.com/shared/KWlpAqL7oqhJMmm9R3Y4Mz">
+<img src="https://magma.com/shared/uoDMaQK0FnE3HJUeYBAVvT">
 </p>
 <p align="center">
-🂱<img src="https://64.media.tumblr.com/3cb5376b2ba6470664cb029526faf980/cfd3dacfea85f312-bd/s400x600/c7a8e50fc9482b70f819da456a14724dd5f7d137.pnj">🂱
+🂱 <img src="https://64.media.tumblr.com/9238b3f8b978bac5fc16429235c49af0/b18aff3ce9323114-6a/s400x600/f7f7ba3ce1b11d747b6798a771afcd920565412b.gifv"> 🂱
 </p>
 
 
