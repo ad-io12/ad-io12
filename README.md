@@ -1,6 +1,6 @@
 
 
 <p align="center">
-<img src="https://static.wikia.nocookie.net/vsbattles/images/1/16/AsaMitaka.png/revision/latest?cb=20240429022755">
+<img src="https://img1.picmix.com/output/stamp/normal/1/9/4/6/2606491_42707.png">
 </p>
 
