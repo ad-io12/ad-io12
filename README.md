@@ -5,4 +5,3 @@
   
 </p>
 <p align="center">  ${\textsf{\color{#FFFAA0}Makima glaze WILL be tolerated}}$ </p>
-<p align="center"> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQmS_ot09ESzGyQ3En0Lxs-aYYszStmzZui8A&s"> </p>
