@@ -1,6 +1,6 @@
 
 
 <p align="center">
-<img src="https://img1.picmix.com/output/stamp/normal/1/9/4/6/2606491_42707.png">
+<img src="https://magma.com/shared/I8o1qmkJVt7Rh9Ce_jCIcT">
 </p>
 
